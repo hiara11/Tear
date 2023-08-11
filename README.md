@@ -1,4 +1,4 @@
-# Projeto  Tear da Hiara <h1>
+# Projeto  Tear da Hiara e Thais e Gabriel <h1>
 
 Descrição projeto
 
